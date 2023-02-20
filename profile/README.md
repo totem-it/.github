@@ -2,5 +2,5 @@
 
 ## O nas 👋
 
-[Totem.com.pl](https://totem.com.pl) to nowoczesna drukarnia cyfrowa. Specjalizacją drukarni jest cyfrowa produkcja książek i dostarczanie naljepszych rozwiązań technologicznych z zajresu poligrafi.
+[Totem.com.pl](https://totem.com.pl) to nowoczesna drukarnia cyfrowa. Specjalizacją drukarnii jest cyfrowa produkcja książek i dostarczanie naljepszych rozwiązań technologicznych z zakresu poligrafi.
 
